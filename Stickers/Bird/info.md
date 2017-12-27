@@ -1,0 +1,1 @@
+The ```Bird``` sticker is based on [Ka](http://gph.is/2zNNtHm) who is part of the [Der Löwe ist los](https://de.wikipedia.org/wiki/Der_L%C3%B6we_ist_los) series from [Max Kruse](https://en.wikipedia.org/wiki/Max_Kruse_(author))
