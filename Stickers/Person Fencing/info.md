@@ -1,0 +1,1 @@
+The [Person Fencing](https://emojipedia.org/fencer/) sticker is inspired by [Neji Hyūga](https://naruto.wikia.com/wiki/Neji_Hy%C5%ABga) and [Hinata Uzumaki](http://naruto.wikia.com/wiki/Hinata_Hyūga) from [Naruto Shippuden](https://www.crunchyroll.com/naruto-shippuden) 
