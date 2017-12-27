@@ -1,0 +1,1 @@
+The [Digit Seven](https://emojipedia.org/digit-seven/) sticker is inspired by [Kakashi Hatake](http://naruto.wikia.com/wiki/Kakashi_Hatake) from [Naruto Shippuden](https://www.crunchyroll.com/naruto-shippuden) 
